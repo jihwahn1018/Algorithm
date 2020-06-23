@@ -1,0 +1,1 @@
+ics to read the transcript of that call. They have pointed to 10 words - I would like you to do us a favor, though
